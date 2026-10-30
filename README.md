@@ -3,6 +3,6 @@
 <p style="text-align: center">
 the aspd bpd lesbian 
 <br> proship + block freely
-<br><a href="wip">atabook</a> ♡ <a href="wip">neocities</a>
+<br><a href="https://example.com">atabook</a> ♡ <a href="https://bondage.neocities.org/">neocities</a>
 </p>
 
